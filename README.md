@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Justanothermax
+- 👀 I’m interested in mods
+- 🌱 I’m currently learning welding
